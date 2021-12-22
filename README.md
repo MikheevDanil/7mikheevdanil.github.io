@@ -1,1 +1,0 @@
-# 7mikheevdanil.github.io
